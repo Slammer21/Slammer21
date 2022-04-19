@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Slammer21
-- Sorry for the inconvenience but this account has been shifted to a new username @ChaitanyaAgarwal97 .
+- Sorry for the inconvenience but this account has been shifted to a new username [@ChaitanyaAgarwal97](https://github.com/ChaitanyaAgarwal97).
 - Please check my profile with this new username.
 
 <!---
